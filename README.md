@@ -1,1 +1,3 @@
 # projektminka
+
+Hakker vagyok🛡🏹🗡⚔🔪🔪!
